@@ -8,4 +8,4 @@ The blood-dimmed tide is loosed, and everywhere
 
 I forgot line seven of the poem.
 
-I forgot line eighth, plus I forgot while online
+I forgot line eight, plus I forgot while online
